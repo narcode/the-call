@@ -14,4 +14,4 @@ Vinny’s work can be distinguished by its use of light to tell a story, giving 
 
 # links:
 [The Call - ending solo](https://www.youtube.com/watch?v=-OLpvGkWoNo)
-[The Call - complete piece] (https://www.youtube.com/watch?v=6i3uGB3FV7w)
+[The Call - complete piece](https://www.youtube.com/watch?v=6i3uGB3FV7w)
