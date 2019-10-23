@@ -13,5 +13,5 @@ Light Design
 Vinny’s work can be distinguished by its use of light to tell a story, giving light a formative role in the performance process and space, rather than just a decorative one. She makes images through a conversation between light, music and movement. The light design guides the audience through the non-linear narrative, using a strong colour palette inspired by the Surrealists and atmospheric changing shadows to indicate the passing of time. Household floor lamps are used for the audience light, creating an immediate and atmospheric connection between the audience and the piece.
 
 # links:
-The Call - ending solo [https://www.youtube.com/watch?v=-OLpvGkWoNo]
-The Call - complete piece [https://www.youtube.com/watch?v=6i3uGB3FV7w]
+[The Call - ending solo](https://www.youtube.com/watch?v=-OLpvGkWoNo)
+[The Call - complete piece] (https://www.youtube.com/watch?v=6i3uGB3FV7w)
